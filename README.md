@@ -1,1 +1,1 @@
-# galerija2
+# polugodi-nji-projekt
